@@ -10,4 +10,4 @@
 
 [ Click here ](https://github.com/SAKUTA123/ItsMeHerman/blob/master/setting.json)
 
-Subscribe chanel NIME LOVERS [ click ](https://github.com/SAKUTA123/ItsMeHerman/blob/master/setting.json)
+Subscribe chanel NIME LOVERS [ click ](https://youtube.com/channel/UCZb_hT4d12AiKG0nSkWQh3Q)
